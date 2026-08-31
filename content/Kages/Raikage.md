@@ -1,0 +1,1 @@
+The Raikage is the leader of the Hidden Cloud Village

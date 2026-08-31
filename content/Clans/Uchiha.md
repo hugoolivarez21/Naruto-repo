@@ -1,0 +1,1 @@
+The Uchiha is known for their powerful visual jutsu's, causing enemy's to burn, hallucinate, manipulate time, and space.

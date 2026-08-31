@@ -1,0 +1,1 @@
+A Kunai is the most common weapon used by most ninja. A Kunai is a knife.

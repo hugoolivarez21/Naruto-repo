@@ -1,0 +1,1 @@
+The Hyuga Clan is known for their visual jutsu that allows them to scan for enemy chakra points to cut off chakra, or scan an environment for enemies if regular visibility is not good with great range.

@@ -1,0 +1,1 @@
+The Tsuchikage is the leader of the Hidden Stone Village

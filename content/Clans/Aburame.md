@@ -1,0 +1,1 @@
+The Aburame clan is known for their control of bugs in battle. These bugs can be used to poison, suffocate, immobilize, or even scout surroundings. 

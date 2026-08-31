@@ -1,0 +1,1 @@
+A shuriken is a common weapon used by most ninja. This is a 4 stared throwing knife.

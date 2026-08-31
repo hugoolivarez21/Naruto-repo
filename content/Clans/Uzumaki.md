@@ -1,0 +1,1 @@
+The Uzumaki clan is most commonly known for their massive chakra reserves.
