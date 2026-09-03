@@ -1,0 +1,1 @@
+Matatabi is the Two Tailed Jinchuriki. The most recent holder of this tailed beast is Yugito.

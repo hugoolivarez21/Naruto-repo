@@ -1,0 +1,1 @@
+The Hidden Leaf Village is located in the Land of Fire. Another name for this village is Konoha.

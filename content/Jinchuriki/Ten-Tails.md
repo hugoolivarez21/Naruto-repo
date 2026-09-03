@@ -1,0 +1,1 @@
+The Ten-Tails is a combination of all tailed beasts. The important holders of this Jinchuriki include Hagaromo Otsutsuki, Obito Uchiha, and Madara Uchiha.

@@ -1,0 +1,1 @@
+Kokuo is the Five Tailed Jinchuriki. The most recent holder of this tailed beast is Han.

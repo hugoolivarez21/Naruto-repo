@@ -1,0 +1,1 @@
+Chomei is the Seven Tailed Jinchuriki. The most recent holder of this tailed beast is Fu.

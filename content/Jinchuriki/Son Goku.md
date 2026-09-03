@@ -1,0 +1,1 @@
+Son Goku is the Four Tailed Jinchuriki. The most recent holder of this tailed beast is Roshi.

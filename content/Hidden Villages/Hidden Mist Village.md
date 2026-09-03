@@ -1,0 +1,1 @@
+The Hidden Mist Village is located in the Land of Water. Another name for this village is Kirigakure.

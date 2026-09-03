@@ -1,0 +1,1 @@
+The Hidden Stone Village is located in the Land of Earth. Another name for this village is Iwagakure.

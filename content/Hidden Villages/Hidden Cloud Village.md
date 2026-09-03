@@ -1,0 +1,1 @@
+The Hidden Cloud Village is located in the Land of Lightning. Another name for this village is Kumogakure.

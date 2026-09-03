@@ -1,0 +1,1 @@
+Shukaku is the One Tailed Junchuriki. The most recent holder of this tailed beast is Gaara.

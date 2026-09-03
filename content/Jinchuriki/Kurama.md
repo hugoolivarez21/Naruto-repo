@@ -1,0 +1,1 @@
+Kurama is the Nine Tailed Jinchuriki. The most recent holder of this tailed beast is Naruto Uzumaki. Some more important holders of this beast include Himawari, Kushina, Mito Uzumaki, and Minato Namikaze; all members of Naruto's family interesting enough.

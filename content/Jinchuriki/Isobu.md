@@ -1,0 +1,1 @@
+Isobu is the Three Tailed Jinchuriki. The most recent holder of this tailed beast is Yagura. Another important holder of this beast is Rin.

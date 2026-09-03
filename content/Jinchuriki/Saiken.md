@@ -1,0 +1,1 @@
+Saiken is the Six Tailed Jinchuriki. The most recent holder of this tailed beast is Utakata.

@@ -1,0 +1,1 @@
+The Hidden Sand Village is located in the Land of Wind. Another name for this village is Sungakure.

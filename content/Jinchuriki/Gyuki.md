@@ -1,0 +1,1 @@
+Gyuki is the Eight Tailed Jinchuriki. The most recent holder of this tailed beast is Killer B.
