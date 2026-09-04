@@ -3,7 +3,7 @@ Naruto Knowledge Base: This Knowledge Base is going to be an informative view on
 ---
 ## Main Categories
 -[[clans/index|Clans]]
--[[hidden-villages/index|Hidden Clans]]
+-[[hidden-villages/index|Hidden Villages]]
 -[[jinchuriki/index|Jinchuriki]]
 -[[kages/index|Kages]]
 -[[weapons/index|Weapons]]
