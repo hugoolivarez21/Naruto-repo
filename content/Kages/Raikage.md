@@ -13,4 +13,4 @@ The Hidden Cloud Village is similar to the [[Mizukage]] in that they pick the st
 
 ### Alliances
 The most notable alliance with any other Kage is with the Third [[Hokage]], Tobirama. They wanted to sign the Cloud-Leaf Peace Pact, but this got ambushed, which resulted in the death of the Second Raikage. Besides this, Darui now maintains a relationship with the 4 other Kage of the great nations as a result of the Fourth Great Ninja War.
-![Second, Fourth, and Third Raikage](../images/raikages.jpg)
+![Second, Fourth, and Third Raikage](raikages.jpg)

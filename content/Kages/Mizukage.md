@@ -14,4 +14,4 @@ The Mizukage is the only village where one is picked to lead the village off of 
 
 ### Alliances
 Besides the post Fourth Great Ninja War alliance between the Fifth [[Raikage]], Fourth [[Tsuchikage]], Fifth [[Kazekage]], and Seventh [[Hokage]], the position of Mizukage has historically been a lonely role. This is due to most Mizukage being very violent and focusing on building up the strength of its own village. 
-![Gengetsu, Mei, and Yagura](../images/mizukages.jpg)
+![Gengetsu, Mei, and Yagura](mizukages.jpg)

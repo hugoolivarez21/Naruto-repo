@@ -14,4 +14,4 @@ In the Hidden Sand Village, the title of Kazekage is given down in inheritance. 
 ### Alliances
 Besides the Kazekage's long running alliance with the [[Hokage]]'s of the Leaf Village, the Fourth Great Ninja War brought along an alliance with the leaders of each village, specifically the Fourth [[Raikage]], Third [[Tsuchikage]], and the Fifth [[Mizukage]]. 
 
-![Third, Fifth, and Fourth Kazekage](../images/kazekages.jpg)
+![Third, Fifth, and Fourth Kazekage](kazekages.jpg)

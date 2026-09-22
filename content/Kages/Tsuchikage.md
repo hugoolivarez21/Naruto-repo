@@ -12,4 +12,4 @@ The Village Hidden in the Stone mirrors the Leaf Villages "Will of Fire" in that
 
 ### Alliances
 The Tsuchikage have historically only kept alliances with other villages at times of war. The first instance was then the First [[Hokage]] Hashirama gathered all Kage to evenly distribute the tailed beasts so as to not create any imbalances in power. Besides this, They currently hold an alliance with all other Kage as a result of the Fourth Great Ninja War.
-![Mu, the most feared Tsuchikage](../images/tsuchikage.jpg)
+![Mu, the most feared Tsuchikage](tsuchikage.jpg)

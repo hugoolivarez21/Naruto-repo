@@ -12,6 +12,8 @@ The position of Hokage is granted to individuals within the Leaf Village who sho
 5. Lady Tsunade
 6. Kakashi Hatake
 7. Naruto Uzumaki
+The following PDF provides a brief summary regarding each hokage ![[hokage-list.pdf]]
+
 ### Alliances
 The only successful alliance that has formed (pre-Fourth Great Shinobi War) is with the Sand Villages [[Kazekage]], Gaara. After a failed attack on the leaf village, Lady Tsunade formed an alliance with newly appointed Kazekage Gaara in an effort to bring more unity to the ninja world.
-![Hokages In Order](../images/hokages.jpg)
+![Hokages In Order](hokages.jpg)
