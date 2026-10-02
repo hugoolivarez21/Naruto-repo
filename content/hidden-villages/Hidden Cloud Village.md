@@ -4,4 +4,4 @@ The Village Hidden in the Clouds is led by the [[Raikage]], and sits in the Land
 
 ## Notable Conflicts
 Throughout the course of history, the Hidden Cloud village has been involved in several conflicts. One of the most notable is with the [[Hidden Leaf Village]]. They attempted to kidnap Kushina [[Uzumaki]] from the Leaf Village to attempt to get more information on how she could hold the Nine Tails [[Kurama]] and study the Uzumaki's chakra control along with it. They also have had run ins with the [[Hyuga]] Clan, attempting to steal a Byakugan eye from one of the clans members. This village has also been on the receiving end of some attacks as well. They were most notably attacked by Sasuke [[Uchiha]] when he was a part of the Akatsuki to attempt to capture the Eight Tails, but Killer Bee was able to escape this attack. 
-![Hidden Cloud Village][Kumogakure.jpg]
+![Hidden Cloud Village](Kumogakure.jpg)
