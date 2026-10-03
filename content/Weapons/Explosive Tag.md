@@ -1,1 +1,0 @@
-An Explosive Tag is most commonly used to tie around throwing weapon to explode when the tag has finished burning.

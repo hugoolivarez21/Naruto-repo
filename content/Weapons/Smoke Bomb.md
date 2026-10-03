@@ -1,1 +1,0 @@
-A Smoke Bomb is a common weapon used to create diversions for a surprise attack, limit visibility for an enemy, or retreat without being seen.
