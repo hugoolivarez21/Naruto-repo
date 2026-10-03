@@ -1,3 +1,7 @@
+---
+title: Village Hidden in the Clouds
+date: 10/02/2026
+---
 # Kumogakure
 
 The Village Hidden in the Clouds is led by the [[Raikage]], and sits in the Land of Lightning. Not much is know of this city but we do know this city is home to the second fasted person alive, behind the Fourth [[Hokage]] Minato Namikaze, Ay, the Fourth Raikage. The shinobi in this village specialize in Lightning style mostly and gain a speed advantage due to this. This village is also home to the Eight tails [[Gyuki]] and his host Killer Bee. 

@@ -1,5 +1,7 @@
 ---
 Naruto Knowledge Base: This Knowledge Base is going to be an informative view on all things Naruto.
+title: Home Page
+date: 10/02/2026
 ---
 ## Main Categories
 -[[clans/index|Clans]]

@@ -1,3 +1,7 @@
+---
+title: Village Hidden in the Sand
+date: 10/02/2026
+---
 ## Sungakure
 The Village Hidden in the Sand is led by the [[Kazekage]] and sits in the Land of Wind. The shinobi's in this village all utilize Wind style in some capacity and most utilize the sand to their advantage as we. This village is home to [[Shukaku]], the One Tailed Jinchuriki. The sand village is also known for utilizing the puppet technique. Over the years, they have developed a strong relationship with the [[Hidden Leaf Village]] and are allied by geography and politics. 
 

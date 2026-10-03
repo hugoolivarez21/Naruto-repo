@@ -1,5 +1,6 @@
 ---
 title: Jinchuriki
+date: 10/02/2026
 ---
 ## Main Categories (Tailed Beasts in Order by Tail)
 1.  [[Shukaku]]

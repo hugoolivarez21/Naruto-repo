@@ -1,3 +1,7 @@
+---
+title: Village Hidden in the Stone
+date: 10/02/2026
+---
 ## Iwagakure
 
 The Village Hidden in the Stone is led by the [[Tsuchikage]], and sits in the Land of Earth. This village is home to two tailed beasts including the Roshi, the Four Tails Jinchuriki for [[Son Goku]], and Han, the Five Tails Jinchuriki for [[Kokuo]].

@@ -1,3 +1,7 @@
+---
+title: Kazekage
+date: 10/02/2026
+---
 # Leader of Sungakure
 
 In the Hidden Sand Village, the title of Kazekage is given down in inheritance. Every Kazekage comes from the one bloodline and only members of the "Sand Royal Bloodline" if you will. From the bloodline, they are then vetted by the elders to see if the candidates are strong enough to become the Kazekage. This role is given only to the most powerful Kazekage bloodline member of the village. A good quote that describes this role is:

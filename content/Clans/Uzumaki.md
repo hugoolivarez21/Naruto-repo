@@ -1,3 +1,7 @@
+---
+title: Uzumaki Clan
+date: 10/02/2026
+---
 ## The Clan of Life
 
 The Uzumaki clan is one of the most important clans of the Naruto series, as it is of course Naruto's clan. This clan is most known for their massive chakra reserves and their great power. They have notoriously been great healers as well as shinobi. They share close relation to the Senju clan, which is the direct decendents of Ashura Otsutsuki, or the younger child to the Sage of Six Paths. This clan and the Senju clan often married into one another, sharing their powerful DNA. They are most known for their red hair, shown with characters like Kushina, Nagato, and Karin. Not much else is know about this clan compared to the Senju clan, but their importance in the Naruto Verse is felt throughout the entire series. Many of these clan members share the Will of Fire along with the Senju. They are another founding clan of the [[Hidden Leaf Village]]. One notable quote to describe this clan is:

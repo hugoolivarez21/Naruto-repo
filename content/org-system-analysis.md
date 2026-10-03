@@ -1,5 +1,6 @@
 ---
 title: Naruto Wiki Analysis
+date: 9/26/2026
 ---
 The site we will be analyzing is https://naruto.fandom.com/wiki/Narutopedia. Naruto serves as a wikipedia page for all things Naruto, providing information on any topic within Naruto that you would like to know.
 

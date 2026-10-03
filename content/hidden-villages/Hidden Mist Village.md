@@ -1,3 +1,7 @@
+---
+title: Village Hidden in the Mist
+date: 10/02/2026
+---
 ## Kirigakure
 
 The Village Hidden in the Mist is led by the [[Mizukage]] and sits in the Land of Water. Every shinobi who lives here specializes in Water Style, and utilize this to some degree in combat. This village is also houses [[Isobu]], Three-Tailed Beast, and [[Saiken]], the Six-Tailed beast. 

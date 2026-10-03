@@ -1,3 +1,7 @@
+---
+title: Village Hidden in the Leaf
+date: 10/02/2026
+---
 ## Konohagakure
 
 The Village Hidden in the Leaf is led by the [[Hokage]], and sits in the Land of Fire. The Hidden Leaf Village is the main focus of the Naruto series, and is the most  village in the verse. Most of the Clans covered in the Naruto series are from here, including the [[Aburame]], [[Hyuga]], [[Uchiha]], and [[Uzumaki]]. This is also where Naruto resides, in turn, where [[Kurama]], the Nine Tailed Fox resides as well. This is also home to the most powerful shinobi in the entire verse including several previous Hokage, such as Naruto, Minato, and Hashirama, as well as some powerful villains like Sasuke, Madara, and Obito. 

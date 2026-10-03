@@ -1,3 +1,7 @@
+---
+title: Tsuchikage
+date: 10/02/2026
+---
 # Leader of Iwagakure
 
 The Village Hidden in the Stone mirrors the Leaf Villages "Will of Fire" in that they look for members who possess the "Will of Stone", or are stubborn as a rock in their will to protect the village. This village uses a blend of Master/Student, hereditary lineage, and mastery over the Jinton release which is capable of disintegrating anything at the atomic level. The Will of Stone is usually best embodied in the Tsuchikage's overall stubborn behavior. One quote that best describes this position is:

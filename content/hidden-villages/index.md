@@ -1,5 +1,6 @@
 ---
 title: Hidden Villages
+date: 10/02/2026
 ---
 ## Main Categories
 - [[Hidden Cloud Village]]

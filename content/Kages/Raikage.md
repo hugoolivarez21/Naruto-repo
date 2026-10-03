@@ -1,3 +1,7 @@
+---
+title: Raikage
+date: 10/02/2026
+---
 # Leader of Kumogakure
 
 The Hidden Cloud Village is similar to the [[Mizukage]] in that they pick the strongest member of the village to lead and protect the village, using the Lightning release. The Raikage is usually the "B" to the Raikages "A". The Raikage picks someone they trust and trains them up to become the next leader, up until the most recent Raikage, who chose his bodyguard instead of his successor/brother. One quote that best describes this role is:

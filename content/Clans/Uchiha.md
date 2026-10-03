@@ -1,3 +1,7 @@
+---
+title: Uchiha Clan
+date: 10/02/2026
+---
 ## The Sharingan Clan
 
 The Uchiha clan is the single most powerful clan in the entire [[Hidden Leaf Village]] and arguably the entire Naruto Verse. They are the direct decedentd to Indra Otsutski, the first born son of the Sage of Six Paths, or the founding father of the Shinobi. Some Uchiha are so powerful, they can even control [[Kurama]], the most powerful tailed beast behind the [[Ten-Tails]]. This clan is most known for their visual jutsu, the Sharingan. The Sharingan can do many powerful jutsu, such as illusions, eternal flames, teleportation, matter manipulation, mental manipulation, and even the ability to cheat death. This clan is the most feared for their overwhelming power and history of evil figures throughout the story of Naruto. One notable quote that describes this clan is:

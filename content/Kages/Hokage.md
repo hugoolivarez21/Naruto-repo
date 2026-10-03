@@ -1,3 +1,7 @@
+---
+title: Hokage
+date: 10/02/2026
+---
 
 # Leader of Konohagakure
 

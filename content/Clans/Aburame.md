@@ -1,3 +1,7 @@
+---
+title: Aburame Clan
+date: 10/02/2026
+---
 ## The Bug Clan
 
 The Aburame clan is a clan who's primary weapons consists of bugs and insects. The Aburame clan live in the [[Hidden Leaf Village]] located in the Land of Fire. The Aburame clan have utilized these insects to perform many tasks including recon, poison, chakra control, flight, paralysis, and even suffocation. The name Aburame is short for Aburamushi, which direclty translates to "cockroach". One notable quote which can be interpreted as describing this clan with their relation to bugs is:

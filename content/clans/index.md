@@ -1,5 +1,6 @@
 ---
 title: Clans
+date: 10/02/2026
 ---
 ## Main Categories
 - [[Aburame]]
